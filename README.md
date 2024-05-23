@@ -1,16 +1,13 @@
-## Hi there 👋
+## Seja Bem-Vindo 🇧🇷🫀
+Meu Nome é David Richard
 
-<!--
-**DavidRichardd777/DavidRichardd777** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Esse é meu último ano na Escola
+- Sou Formado em Computação
+- Trabalho como Garçom Atualmente.
 
-Here are some ideas to get you started:
+### ENTRAR EM CONTATO COMIGO 📞
+- ### 16 991879317
+### SEGUE NO INSTAGRAM!!!
+- ### @davidrichardd.alvs
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://tenor.com/pt-BR/view/neymar-neymar-jr-neymar-celebration-neymar-dance-neymar-dive-gif-25425357)
